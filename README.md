@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @DarkerXCodez
+- 👀 I’m interested in Programming
+- 🌱 I’m currently learning Assembly
+- 💞️ I’m looking to collaborate on a lot of discord projects
+- 📫 How to reach me is by sending a mail to darkerx2022@gmail.com
